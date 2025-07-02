@@ -9,3 +9,5 @@
 
 <ins>***first thing: I DON'T BITE :3*** ![](https://64.media.tumblr.com/45d1cb797256898c4fa2de1aa1e3c630/91621bbc75aa7d28-fd/s75x75_c1/58a1b6d87b61882f1c79e0ce7de0bb1c1831a027.gifv)  feel free to int / yapping / c+h</ins>
 - *English is **NOT** my native language (bad grammar  / mistakes)* ![](https://64.media.tumblr.com/a0348c731791fdca5ac1ab5597d56eb0/07d3e658f8efc25f-50/s75x75_c1/d39793c79cc59cd6eafcf18a3eae764f214cadd7.gifv)
+
+![ryuko 2](https://64.media.tumblr.com/52eda9b5f80923e1e483c5d4695d9846/e3b4d63128bd993e-89/s500x750/43ded9f5845832a1fe2214eb77c1ce7e2e78f85e.gifv)
