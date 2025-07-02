@@ -1,2 +1,11 @@
 
 ![ryuko](https://64.media.tumblr.com/8585dd3ee8f4a95c6517ce580f523f6f/f29c46b722058be5-93/s540x810/78f449fa0d2619907c9120c9655c04d9f2ab9e8d.gifv)
+
+***moi or cyb/cyber***   ![a](https://64.media.tumblr.com/bb9593a8a7eee19c4faa526389961342/efa1017aff24ee12-fd/s75x75_c1/442dea2e3114de941d029c0fc8e931908e351e97.gifv) `fourteen`  ![b](https://64.media.tumblr.com/3f34d880de3b51cc0a5fce84ce9c3edf/0f1dd797b5574c42-ac/s75x75_c1/b708f769def9af52bb9febd1085341a58cf719af.gifv)  <ins>*esfp*</ins>
+-
+---
+
+![](https://64.media.tumblr.com/3226232d4ad9a8fed1eb91924af87e5f/dbd8b1e992a56a49-ea/s250x400/3250af1936a35921866516db122adec36de38b03.gifv) ![](https://64.media.tumblr.com/b533d2107d84360b12c02d2c0b994ee2/b035b516dc88dd13-85/s250x400/a85beb2a4a7fffe4eb1fe91c44e70f9c7705c67c.gifv) ![](https://64.media.tumblr.com/59343e8ab721765f1221aa526818494f/6eac0cbc1027da31-eb/s250x400/3ea3a3073ce2925951b0bff3096fb4233e17dc02.gifv) ![](https://64.media.tumblr.com/a8d5083abc0615d2bda74045053cde45/c67fa6c636418c25-f3/s250x400/4c3461a73b8f48d172e94ea35454b1e940578d66.gifv)
+
+<ins>***first thing: I DON'T BITE :3*** ![](https://64.media.tumblr.com/45d1cb797256898c4fa2de1aa1e3c630/91621bbc75aa7d28-fd/s75x75_c1/58a1b6d87b61882f1c79e0ce7de0bb1c1831a027.gifv)  feel free to int / yapping / c+h</ins>
+- *English is **NOT** my native language (bad grammar  / mistakes)* ![](https://64.media.tumblr.com/a0348c731791fdca5ac1ab5597d56eb0/07d3e658f8efc25f-50/s75x75_c1/d39793c79cc59cd6eafcf18a3eae764f214cadd7.gifv)
